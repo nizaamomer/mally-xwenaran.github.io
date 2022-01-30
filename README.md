@@ -1,0 +1,2 @@
+# mally-xwenaran
+ماڵی خوێنەران
